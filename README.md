@@ -20,9 +20,7 @@ JavaScript
 
 
 
-https://github.com/deblinaroy11/PRODIGY_WD_01/assets/137715845/963698c6-4ad3-4100-bbf6-a658aa9b2b7e
 
 
 
-https://github.com/deblinaroy11/PRODIGY_WD_01/assets/137715845/bf220b98-85d3-4948-a2ac-a5f4fdb94e51
 
